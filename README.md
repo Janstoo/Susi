@@ -1,2 +1,2 @@
 # Susi
-Beste
+Ist die Beste
